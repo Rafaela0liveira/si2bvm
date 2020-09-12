@@ -1,1 +1,1 @@
-VimCrypt~03!\¢úØ!€óNşsƒpC²MÂçZ‚ ËhÎp='DŞ·:+U32®X)bVHõ`|N¹‡è¶Z8ræ?.(-z
+esse e o arquivo criado na maquina virtual ubuntu
